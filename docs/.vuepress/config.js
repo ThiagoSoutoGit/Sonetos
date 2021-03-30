@@ -1,4 +1,5 @@
 module.exports = {
+    base: '/Sonetos/',
     title: 'Sonetos de Terras de Ara',
     description: 'Sonetos escritos por Itamar Souto',
     themeConfig: {
