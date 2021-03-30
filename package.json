@@ -1,0 +1,7 @@
+{
+  "scripts": {
+    "docs:dev": "vuepress dev docs",
+    "docs:devo": "vuepress dev docs --open --host localhost",
+    "docs:build": "vuepress build docs"
+  }
+}
