@@ -593,4 +593,562 @@ Para uma Vanda amada,
 
 Uma Vanda e um beijo.
 
+## 16. Boa Noite Aparecida!
 
+Durma com os Anjos.
+
+Pense estar no céu.
+
+Sonhe com os Arcanjos.
+
+Cubra-se com um véu.
+
+<br>
+
+
+Ore pelos amigos.
+
+Ore pelos vis.
+
+Deus estará contigo.
+
+Acordarás feliz.
+
+<br>
+
+
+Acordarás ao Sol raiar,
+
+Com um sorriso juvenil.
+
+Verás que, mesmo o mar,
+
+<br>
+
+
+De tamanho vigor,
+
+É pouco ao competir,
+
+Com o tamanho do teu amor.
+
+
+## 17. Boa Noite!
+
+
+Meu boa noite para cada um de vocês.
+
+Recolher-me-ei aos bons costumes.
+
+Voltarei amanhã, às seis.
+
+Para um abraço de bom volume.
+
+<br>
+
+
+Para mais um bom dia desejar.
+
+Aos meus amigos de verdade.
+
+Àqueles que possam enxergar,
+
+O tamanho de minha vaidade.
+
+<br>
+
+
+Vaidade! Sim, de sentir,
+
+Não só que sou muito feliz.
+
+Mas que tenho amigos pra valer.
+
+<br>
+
+
+Amigos, daqueles para a eternidade.
+
+Sinceros, do bem querer,
+
+Do amor, da fraternidade.
+
+
+## 18. Com o Vovô
+
+
+Eu vou passear
+
+Com o meu vovô eu vou.
+
+Eu vou passear
+
+Agora com o meu vovô
+
+<br>
+
+
+
+Desta praça até aquela acolá
+
+Muito Sol, muitas flores
+
+Um cheiro gostoso do mar.
+
+Que vida, que festa, que amores!
+
+<br>
+
+
+
+Sempre quero passear
+
+Nunca só, não é vô?
+
+E quando começar a andar…
+
+
+<br>
+
+
+Corre, me segura vovô!
+
+Quero ver me aguentar,
+
+Cheguei primeiro, meu vô!
+
+
+## 19. Confinamento
+
+Lá fora um mundo infinito, 
+
+Aqui, sem poder escapar,
+
+Pensar fazem-me chorar.
+
+Ao ar foge-me um grito.
+
+<br>
+
+
+
+Ecoa nas ruas das cidades,
+
+Dispara nas longas estradas,
+
+Através das nuvens azuladas,
+
+Cala no fundo dos sete mares.
+
+
+<br>
+
+
+Sinto a vida como um torpor.
+
+Impede-me, limita-me o canto.
+
+Meu canto, o som do meu pranto.
+
+<br>
+
+
+
+A existência única do amor,
+
+Suporta-me em seus braços,
+
+Cativa-me com vigorosos laços.
+
+
+## 20. Destino
+
+Essência do mundo,
+
+Essência da vida.
+
+Um poço sem fundo,
+
+Um poço, não guarida.
+
+
+<br>
+
+
+Expectativa! muitos planos.
+
+Afincos com garra coerente.
+
+Descobre-se já, como decanos,
+
+O Sol que se vai, o Sol poente.
+
+
+<br>
+
+
+Glórias, êxitos, tudo conseguido.
+
+Um impasse surge no horizonte,
+
+Um simples e minúsculo graveto.
+
+
+<br>
+
+
+Estar ou não no universo certo?
+
+Á vista um significante desmonte.
+
+Ocaso? Sol, bem mais perto.
+
+
+
+## 21. Desvaneios
+
+Das frestas da pitangueira,
+
+Entre um sacudir e outro,
+
+Um azul abre-se em meu rosto.
+
+Folhas balançam faceiras.
+
+
+<br>
+
+
+Um céu anil e profundo,
+
+Retroage ao imemoriável.
+
+Sim, deveras imemoriável!
+
+Um retorno a um mundo.
+
+
+<br>
+
+
+Laços soltaram-se ao destino,
+
+Sem nunca chegarem a ser nós.
+
+Desataram-se ao mundo, a sós.
+
+
+<br>
+
+
+Lá… uma flor se abrindo,
+
+Feliz e com muita graça
+
+Um coração que abraça.
+
+
+## 22. Dia da Bandeira
+
+Nossa linda e querida Bandeira.
+
+Esquecida ao sabor dos ventos,
+
+Que no Planalto Central, sem eira,
+
+Sofre os esquecimentos.
+
+
+<br>
+
+
+Outrora, varonil, cheia de riqueza.
+
+Agora, esperando a vida ou a morte,
+
+Vara as escuras noites, sem realeza,
+
+Esperando o Sol e mais sorte.
+
+
+<br>
+
+
+Quando chegará o seu dia de fato.
+
+Para mais uma vez tremular
+
+Ao topo de cada mastro?
+
+
+<br>
+
+
+E cada brasileiro rir e chorar
+
+Com orgulho de um bravo
+
+E mais uma vez A adorar?
+
+
+## 23. É Natal
+
+
+Nasce o Rei eterno, filho de Deus.
+
+Aquele que nos salvará, ao final.
+
+Hoje, luzes e cantos, anunciam Natal.
+
+Nasce o Salvador dos filhos Seus.
+
+
+<br>
+
+
+O amor, a alegria e esperanças,
+
+Invadem todos os corações.
+
+Renasçamos para novas ações.
+
+Ajoelhados curvemos nossas cabeças.
+
+
+<br>
+
+
+Alegremo-nos ao Deus menino!
+
+Deu-nos sua vida para vivermos.
+
+Orienta-nos a cada novo caminho.
+
+
+<br>
+
+
+Paz entre os homens, peçamos.
+
+Oremos a Jesus com carinho.
+
+Mostremos que nós O amamos.
+
+
+
+## 24. Eternidade
+
+O pensamento bate até o tempo, 
+
+Mas o tempo, mesmo batido é real. 
+
+O tempo, sempre vencedor é irreal. 
+
+Conduzo-o ao meu sabor e contento. 
+
+
+<br>
+
+
+Quiçá pudesse, oh! controla-lo. 
+
+Adiantar, acelerar ou mesmo parar! 
+
+No primeiro momento eterniza-lo, 
+
+Para sempre e sem muito pensar. 
+
+
+<br>
+
+
+Petrificar-me-ia num sonho eterno, 
+
+Num mar de vida ou mesmo morte, 
+
+Lançar-me-ia ao paraíso ou inferno. 
+
+
+<br>
+
+
+A ele e nele, sem pensar me consumiria. 
+
+Igual náufrago em uma tempestade, 
+
+Feliz pelo sabor de sentir ser eterno.
+
+
+
+## 25. Eu não Chorei
+
+Eu não chorei. Não chorei.
+
+Assim quero fazer crer.
+
+Quando, com as luzes, me deparei
+
+Umas lágrimas quiseram correr.
+
+
+<br>
+
+
+Fiz o possível para conte-las.
+
+E na dura luta interior,
+
+Vi no céu, não estrelas,
+
+E sim gotas brilhantes de amor.
+
+
+<br>
+
+
+Em volta, a família incompleta.
+
+Apenas um filho ausente.
+
+Muitos amigos ao redor,
+
+
+<br>
+
+
+Esvelam-me no alto, resplandecente,
+
+A vida, de felicidade, repleta
+
+De êxitos, paz e muito amor.
+
+
+## 26. Face
+
+Se me aceitas,
+
+Também te aceitarei.
+
+Sei que de mim, gostas,
+
+Senão do Face, sairei.
+
+
+<br>
+
+
+A Nina já achei, faz tempo.
+
+Outros “listeiros”, também.
+
+Por isso e a contento,
+
+Tua amizade me faz bem.
+
+
+<br>
+
+
+Mensagens vão e vem.
+
+Amigos vêm e não vão.
+
+Ficam sempre que convém,
+
+
+<br>
+
+
+A habitar meu coração,
+
+Que porta de entrada tem,
+
+Mas porta de saída, não.
+
+
+
+
+## 27. Família Reunida
+
+Há expressão maior de amor,
+
+Que uma família reunida?
+
+Na alegria e mesmo na dor,
+
+É o símbolo maior da vida.
+
+
+<br>
+
+
+Do seio da família reunida,
+
+Sai forte uma oração,
+
+Sem voz apenas sentida,
+
+Ao alto, por cada coração.
+
+
+<br>
+
+
+Como um jardim em flor,
+
+Ao Sol, aos olhares e à brisa,
+
+Emana beleza e valor.
+
+
+<br>
+
+
+Um só ninho, células formadas,
+
+Cada uma se multiplica.
+
+À família! Pessoas amadas.
+
+
+## 28. Feliz Ano Novo
+
+Feliz Ano Novo! Feliz Ano Novo!
+
+Todo os finais de ano é assim.
+
+O ano que passou ficou velho?
+
+Simplesmente não mais existe.
+
+
+<br>
+
+
+Agarramos com afinco,
+
+Da capacidade de amar.
+
+Tentamos ser simpático,
+
+E do próximo aproximar.
+
+
+<br>
+
+
+Pode ser um estranho ou não.
+
+Não importa, levamos uma flor,
+
+Linda, vermelha, em cada mão.
+
+
+<br>
+
+
+Aliviamos a dor com um gesto,
+
+Com um sorriso e com muito amor,
+
+Feliz Ano Novo! Feliz Ano Novo!
