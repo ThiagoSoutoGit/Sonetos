@@ -2054,3 +2054,1306 @@ E o desejo de amar,
 Aguça-lhe e domina.
 
 Mas o faz sofrer e chorar.
+
+
+## 46. A Prece
+
+Hora Divina da saudade.
+
+Pensamentos em turbilhões,
+
+Tocam nossos corações
+
+Pedindo a Deus, piedade.
+
+
+<br>
+
+
+Em segundos, nossa vida passa.
+
+No pensar e diante dos olhos,
+
+Momentos alegres e nostálgicos,
+
+Deixa-nos em estado de graça.
+
+
+<br>
+
+
+É a hora da prece, da Ave Maria.
+
+O! Deus Pai que estais no céu,
+
+Chega-Te a nós, a melancolia
+
+
+<br>
+
+
+Nos assusta, precisamos de luz.
+
+Cobre-nos com o Teu véu,
+
+Alivie o caminho em que nos conduz.
+
+
+## 47. À Raimunda Carneiro
+
+Um apreço invisível sempre pairou.
+
+Um sentimento grande e familiar,
+
+Em terras distantes a sonhar,
+
+Com olhares, palavras, me amparou.
+
+
+<br>
+
+
+Em seu redor um jardim em flor
+
+De amigos estrangeiros ansiosos
+
+Em busca de vida nova, amistosos.
+
+Com eles dividiste teu ser, luta e amor.
+
+
+<br>
+
+
+Aqui estás, a mesma beleza de outrora.
+
+Teu jardim, ainda belo, ainda produz,
+
+Veementemente o que contigo aprendera.
+
+
+<br>
+
+
+Alegremos-vos por teres nos jubilado.
+
+Agradecemos a Deus que nos conduz.
+
+Agradecemos a ti por ter nos amados.
+
+
+<br>
+
+
+
+## 48. O Avental da Nona
+
+Poderia dizer que tal instrumento,
+
+Como uma cantata, uma sinfonia,
+
+Com grande precisão e harmonia,
+
+Regeu, por muito tempo, o seu Reino.
+
+
+<br>
+
+
+Como único palco, um mavioso lar.
+
+Onde trabalha, recebe, aconselha,
+
+Serve, enxuga as lágrimas e até cura,
+
+Usando-o, com amor, ao se doar.
+
+
+<br>
+
+
+Um choro aqui, uma dor acolá,
+
+Da coxia sempre a assoprar.
+
+Assim agia a Grande Madona.
+
+
+<br>
+
+
+Nas mãos, uma varinha de condão,
+
+Atuando sem nunca poder parar,
+
+O branco e Santo Avental da Nona.
+
+
+<br>
+
+
+## 49. O Mar e a Vida
+
+Estou eu em meu escritório.
+
+Escritório itinerante.
+
+Paisagem em nada provisório,
+
+Mas de beleza ímpar e mirante.
+
+
+<br>
+
+
+O mar revolto,
+
+Por receber um rio.
+
+Ondas altas, vento solto.
+
+Coisa igual não se viu.
+
+
+<br>
+
+
+Posso não aparentar nem parecer,
+
+Mas vontade, às vezes tenho,
+
+Neste mar lindo a sorrir,
+
+
+<br>
+
+
+Ser envolto com amor.
+
+E em seu forte seio,
+
+Delirar e sucumbir.
+
+<br>
+
+
+## 50. O Patriarca
+
+
+Oh! Vida maravilhosa esta!
+
+Tempestade vem e se vai.
+
+Mesmo forte não nos afeta,
+
+Nosso tronco é forte, não cai.
+
+
+<br>
+
+
+Sementes colocadas ao chão,
+
+Regada com carinho e amor,
+
+Não foram semeadas em vão,
+
+Em cada ramo surgiu uma flor.
+
+
+<br>
+
+
+Sabedoria dos ancestrais,
+
+Pais dedicados e com rigor,
+
+Nos produziu fortes demais.
+
+
+<br>
+
+
+Foram-se todos, deixaram marca,
+
+E como guia, forte e sabedor,
+
+Um esteio, nosso patriarca.
+
+<br>
+
+
+
+## 51. O Que Aconteceu Com os Patos de Rui Barbosa
+
+Os patos atônitos ficaram,
+
+Não depreenderam nonada.
+
+Mas auspiciosos estavam,
+
+Do alargar de suas pescoçadas.
+
+<br>
+
+
+Escasso, estavam quase anélito,
+
+Suas córdeas já avermelhadas,
+
+Nada mais atinavam o proferido,
+
+Do ar ansiavam mesmo migalhas.
+
+<br>
+
+
+Ao sentirem os pescoços de si,
+
+A desejada liberdade da rudeza,
+
+Cada um a gracitar, não morri!
+
+<br>
+
+
+Corria em disparada, nasci!
+
+Ao aconchego da natureza,
+
+O lago onde sempre vivi!
+
+<br>
+
+
+
+## 52. O Tempo que se vai 
+
+Oh, tempo que não para!
+
+Sequer consigo vê-lo.
+
+Se sim, seria meu anelo,
+
+Voltar aos tempos de outrora.
+
+<br>
+
+
+Mas que tempos foram estes
+
+Que os comparamos saudosos,
+
+Como sendo os mais calorosos
+
+Com muito amor e sem vestes?
+
+<br>
+
+
+Parecem desnudos de tristezas,
+
+Um céu de inúmeras estrelas,
+
+Carregado de muitas felicidades.
+
+<br>
+
+
+Vai tempo. Segue teu destino.
+
+Sabes o que fazes, imagino.
+
+Não esqueça nossas idades.
+
+<br>
+
+
+
+## 53. O Tempo
+
+O tempo passa, passa rápido.
+
+Nunca para, somente adianta.
+
+Mas deixa um grande rastro,
+
+É nele que nossa vida anda.
+
+<br>
+
+
+Lá vai o tempo sem nos levar!
+
+Seria divino se assim fosse.
+
+Vamos juntos, vamos sem falar,
+
+Somos dele sua maior posse.
+
+<br>
+
+
+Somos dele, seus prisioneiros.
+
+Amor ou ódio, não importa,
+
+Em suas pegadas, construamos.
+
+<br>
+
+
+Uma vida que curta parece,
+
+Para um fim, talvez sem volta.
+
+Rogo a Deus em minha prece…
+
+
+<br>
+
+
+## 54. O Vagabundo
+
+Que mistura sem cabeça nem pé!
+
+Um mar lindo a brigar.
+
+Uma música, nostálgica, de cabaré.
+
+O mar brigando com o rio a lhe entrar.
+
+<br>
+
+
+Entrar nas entranhas de seu mundo,
+
+Sem trégua, sem parar.
+
+Igual a um vagabundo,
+
+Querendo só desfrutar.
+
+<br>
+
+
+Uma bela rapariga,
+
+Ao Sol se bronzear.
+
+Este é um lindo mundo.
+
+<br>
+
+
+Mundo para a vida.
+
+Mundo para se desfrutar.
+
+Aqui estou, viva o vagabundo.
+
+<br>
+
+
+
+## 55. Para Alice
+
+Parabéns! Alice, neste lindo dia.
+
+Hoje mais um ano de vida completas,
+
+Muitas felicidades e anos de vida,
+
+Que tuas alegrias sejam repletas.
+
+<br>
+
+
+Repletas de amor, desejos e sonhos,
+
+Junto aos teus que te fazem feliz,
+
+Que te adoram e sem medir esforços,
+
+Conduzem-te a um lindo País.
+
+<br>
+
+
+Preparam-te ao voo luzidio,
+
+Pelo caminho que escolherás,
+
+Com firmeza e sem vacilo.
+
+<br>
+
+
+Em estradas, caminhos ou trilhas,
+
+Sem cansar, ao teu objetivo irás,
+
+O distante País das Maravilhas.
+
+<br>
+
+
+## 56. PARAUAPEBAS
+
+Deixo-te mais uma vez,
+
+Como uma namorada,
+
+Que um dia me apaixonei,
+
+Sentindo que és minha amada.
+
+<br>
+
+
+Teu envolto belo, montanhoso,
+
+Tuas avenidas cheias de Ipês,
+
+Envolve, meu peito, carinhoso,
+
+Cora com amor a minha tez.
+
+<br>
+
+
+Nesta primavera encantadora,
+
+Deslumbrastes tuas ruas coloridas,
+
+Numa explosão devastadora.
+
+<br>
+
+
+Vou, deixo-te, mas me esperas,
+
+Voltarei. Não serás esquecida.
+
+Minha querida e linda PARAUAPEBAS.
+
+<br>
+
+
+
+## 57. Pequenino Coração
+
+Não chorei, por não ter ouvido.
+
+Este momento sempre mágico,
+
+Emocionante… talvez um grito
+
+De felicidade tivesse dado.
+
+<br>
+
+
+Um grito até dobrado.
+
+Avô é pai em duplicidade.
+
+Na primeira vez, um brado,
+
+Forte de pura felicidade.
+
+<br>
+
+
+Na segunda, filho do filho,
+
+Certamente choraria, gritaria.
+
+Avô feliz em grande júbilo.
+
+<br>
+
+
+Se ouvido… mais que emoção.
+
+Extasiado, sem dúvida, ficaria,
+
+Bate forte, pequenino coração.
+
+<br>
+
+
+## 58. Praça Chora Menino
+
+A sombra deste Baobá,
+
+Cá recebo teu registro.
+
+Sem motivo pra chorar,
+
+Em Praça Chora Menino.
+
+<br>
+
+
+Pedido considerado! Louvor.
+
+Em tempo, me animo,
+
+Sem choro é sem dor,
+
+Em Praça Chora Menino.
+
+<br>
+
+
+Ânimo para executar,
+
+Uma obra, como um mimo,
+
+Sem talento e sem jeito,
+
+<br>
+
+
+Um peito a um menino
+
+Adorado em humilde leito,
+
+Em Praça Chora Menino.
+
+
+<br>
+
+
+## 59. Romantismo
+
+Talvez morra de romantismo.
+
+Talvez morra de saudade.
+
+Ah! Mavioso, infinito lirismo,
+
+Não sei o que é eternidade.
+
+<br>
+
+
+Um amor surge em meio a paixão.
+
+Rosas, cartinhas e até camafeu…
+
+Mais um sonho que aconteceu,
+
+Dispara e faz doer meu coração.
+
+<br>
+
+
+Sim, encontrei o amor eterno.
+
+Mesmo neste mundo moderno,
+
+A cada dia mais quântico.
+
+<br>
+
+
+Agradeço-te belo cupido!
+
+Mesmo com o coração ferido,
+
+Serei um eterno romântico.
+
+<br>
+
+
+## 60. Rosa Maria 
+
+Rosa, Roseira, Leila.
+
+Rosa, linda flor,
+
+Mais que faceira,
+
+Sempre um amor.
+
+<br>
+
+
+Roseira que outrora
+
+Alvorecia nossa infância.
+
+Esconde-esconde… até bola,
+
+Brincávamos na inocência.
+
+<br>
+
+
+Caminhos diversos tomamos,
+
+O tempo nos acelerou,
+
+Com amor continuamos.
+
+<br>
+
+
+Foram anos sem vê-la,
+
+A rosa sempre caminhou,
+
+Rosa, Roseira, Leila, Lela.
+
+<br>
+
+## 61. Puro Amor
+
+Puro amor. Amor de verdade.
+
+Amor que caiu do céu.
+
+Envolto por um sacro véu.
+
+Simples, sem vaidade.
+
+<br>
+
+
+Apenas ternura e carinho.
+
+Para com quem compartilhou,
+
+Para com quem sempre amou
+
+E dividiu o mesmo ninho.
+
+<br>
+
+
+Nos momentos de alegria,
+
+Ou mesmo de tristeza,
+
+Soube, com muita certeza,
+
+<br>
+
+
+Que se veio do céu como via,
+
+Este amor, jamais se partiria,
+
+Quebrando o encanto e a beleza.
+
+<br>
+
+
+
+## 62. Quando Parti
+
+Quando parti, a primeira vez,
+
+Simplesmente ela chorou.
+
+Mesmo alegre em sua altivez,
+
+Não escondeu o seu amor.
+
+<br>
+
+
+Após um ano, nos encontramos.
+
+Moribundo eu estava, então.
+
+Eu triste, ela ainda altiva.
+
+Acariciou o meu coração.
+
+<br>
+
+
+Sabia que nunca mais,
+
+Juntos, viveríamos.
+
+Como um pássaro, jamais
+
+<br>
+
+
+Soube a vida entender,
+
+Voei a procura de algo mais.
+
+Não encontrei. Não a vi fenecer.
+
+
+<br>
+
+
+## 63. Rose e o Lago
+
+Azul refletido na superfície, céu ao chão.
+
+Ondulado ao sabor da brisa vespertina,
+
+Transborda em suas margens, paixão
+
+Na alma quieta, atônita e Divina.
+
+<br>
+
+
+Em suas inimagináveis reflexões,
+
+Deixa aparecer com ar de menina,
+
+Infinitos desejos e emoções.
+
+Nada vê, sente ou atina.
+
+<br>
+
+
+Apenas um tranquilo lago,
+
+Esperto e todo prosa.
+
+Tentando com paz, acalentar
+
+<br>
+
+
+A Rose, que ao seu lado,
+
+Uma linda e formosa rosa,
+
+Em momento para sonhar.
+
+<br>
+
+
+
+## 64. São João de Almeida
+
+Eis que uma nuvem se afasta,
+
+Dando passagem pra a luz brilhar.
+
+Inicia-se uma grandiosa festa,
+
+Sob o resplendor do luar.
+
+
+<br>
+
+
+É o São João de Aldeia,
+
+Que começa a esquentar,
+
+E no calor da fogueira,
+
+Vamos todos comemorar.
+
+<br>
+
+
+No ar, muitos balões,
+
+Cada coração a pulsar,
+
+No estrondo dos rojões.
+
+<br>
+
+
+Pulem, cantem, vamos dançar!
+
+É hora de muita brincadeira,
+
+É hora de sonhar, de namorar.
+
+<br>
+
+
+
+## 65. Saudade
+
+Estou com eterna saudade.
+
+O coração aperta mesmo vazio.
+
+São momentos em debalde,
+
+Querendo ver quem há muito partiu
+
+<br>
+
+
+A música que vai direto ao coração,
+
+Não passa por minha mente,
+
+Transforma-se em expressão,
+
+Transporta-me ao ausente.
+
+<br>
+
+
+Oh! Tempo, porque passas?
+
+Porque não parastes a tempo?
+
+Foi-se a melhor alegria.
+
+<br>
+
+
+Foi-se os melhores momentos.
+
+Sou feliz com minha parceria,
+
+Mas passaram o tempo e os ventos.
+
+<br>
+
+
+## 66. Sonalli
+
+Esquina sombreada por árvores.
+
+O bairro? Residencial, comunitário.
+
+Em meio a mesas e garrafas, valores.
+
+Pessoas simples de gosto diário.
+
+<br>
+
+
+Quantos não gostariam de dar,
+
+Tudo para poder viver,
+
+Alguns momentos a relaxar
+
+E sentir o verdadeiro prazer?
+
+<br>
+
+
+Prazer, mesmo sozinho,
+
+Concentrado em comemorar,
+
+A vida ao novo renascer.
+
+<br>
+
+
+Descobrir que tudo vale.
+
+E na mesa de uma bar,
+
+Brindar à uma amiga, Sonalli.
+
+<br>
+
+
+
+## 67. AMIGOS
+
+**Soneto dedicado à turma “ENGENHEIROS DE 1969”**
+
+Mais uma festa comemorativa,
+
+Que se soma aos já quarenta, existente.
+
+São quarenta e um anos de amizade ativa,
+
+Amizade fraterna, coesa e resistente.
+
+<br>
+
+
+Nada conseguiu nos separar.
+
+Mesmo a distância entre a maioria,
+
+E o tempo, eterno, a cooperar,
+
+Aqui chegamos com muita energia.
+
+<br>
+
+
+E nesta festa, acredito ímpar,
+
+À família e aos amigos, mostramos,
+
+Que a união significa amar.
+
+<br>
+
+
+Amar sem constrangimento,
+
+Com abnegação, a vida irmanar.
+
+E assim, unidos como um regimento.
+
+<br>
+
+
+
+## 68. Sonhar
+
+Porque sonhar ainda podemos?
+
+Este mundo destituído de amor,
+
+Não impede de vermos uma flor,
+
+Nos desejos, nos nossos almejos.
+
+<br>
+
+
+O nosso querer impede negar,
+
+A força infinita do coração,
+
+O poder maior de uma oração,
+
+A capacidade ímpar de amar.
+
+<br>
+
+
+Eis aí o poder da fantasia.
+
+Único em cada ser capaz
+
+De vaguear mesmo em demasia.
+
+<br>
+
+
+Aceitar-se, juntar-se aos seus,
+
+Nos caminhos do leva e traz.
+
+Podemos sonhar, graças a Deus.
+
+<br>
+
+
+## 69. Sonho em São Paulo
+
+Acordo-me de um lindo sonho,
+
+Onde voava mesmo sem asas.
+
+Mas que prazer tamanho!
+
+Eis que vejo um bando de garças.
+
+<br>
+
+
+Como uma faixa branca,
+
+Ao sabor de uma brisa,
+
+Voam rápido, com segurança,
+
+O bando não voa, desliza.
+
+<br>
+
+
+Do alto do céu à abaixo,
+
+Sobe graciosa para o céu,
+
+Muda sem sentido o rumo,
+
+<br>
+
+
+Voa bem alto, mais alto,
+
+Gira, parece um carrossel,
+
+Voam nos céus de São Paulo.
+
+<br>
+
+
+
+## 70. Sonho Realizado
+
+Começou um novo começo.
+
+Começo um novo reviver.
+
+Um círculo, a vida, o tempo,
+
+Tudo volta a acontecer.
+
+<br>
+
+
+Patinetes de rolamentos,
+
+Para lá e para cá novamente.
+
+De madeira, vejo os carrinhos,
+
+Um mundo vivo e presente.
+
+
+<br>
+
+
+Vivi, vivo e viverei,
+
+Um sonho, sim, de criança,
+
+Sonho que realizarei.
+
+<br>
+
+
+Brincar com uma neta ou neto,
+
+Eis a vida. Pense na festança!?
+
+Querido neto, serás predileto.
+
+<br>
+
+
+## 71. Suzana 
+
+Suzana, gostaria de dedicar,
+
+Alguns versos para você.
+
+Versos que pudessem falar
+
+De amor, de amizade, de bem-querer.
+
+<br>
+
+
+No entanto, a palavra me falta,
+
+Mesmo diante deste mar, desta brisa,
+
+Que a água espumante, açoita,
+
+A palavra que sempre eterniza.
+
+<br>
+
+
+Que palavra seria esta, então?
+
+Ah! Já sei. Ela está à vista.
+
+E são todas vindas do coração,
+
+
+<br>
+
+
+Que fale de como é boa esta vida,
+
+Uma vida cheia de emoção,
+
+De amizade, a sua, linda e querida.
+
+<br>
+
+
+
+## 72. Tempestade e o Amor
+
+Uma nuvem no céu se forma.
+
+Pesada, carregada e escura.
+
+Abaixo dela a vida se transforma.
+
+A flora agita-se, a fauna, abrigo procura.
+
+
+<br>
+
+
+Até o meu coração,
+
+Agita-se diante tanto vigor.
+
+O sol, quase sem ação,
+
+Tem encoberto seu esplendor.
+
+<br>
+
+
+Chega o grande momento.
+
+Todos sentem uma dor.
+
+Precipitam-se águas em tormento.
+
+<br>
+
+
+O vento sopra forte, não escuta clamor.
+
+Quebram-se, árvores. Os animais? Que sofrimento!
+
+Oh! Não é tempestade, é a quebra do amor.
+
+<br>
+
+
+
+## 73. Tempo
+
+O tempo não tem fatias.
+
+É inteiro de janeiro a janeiro.
+
+Nada o divide nem ao meio.
+
+Meses, semanas, dias!
+
+<br>
+
+
+Invencionice dos sonhadores.
+
+Marcam festas e festivais,
+
+Amenizando as lutas reais,
+
+Dos momentos de fel e dores.
+
+<br>
+
+
+Saibam os que vivem a anelar.
+
+Procurem, se mexendo, viver,
+
+Não guardar, apenas zelar.
+
+<br>
+
+
+O prazer da vida sem dor,
+
+É um tempo eterno de lazer,
+
+Entre os espinhos e o amor.
+
+
+<br>
+
+
+## 74. Teste do Coração
+
+Ah! Belém do Pará,
+
+Testastes meu coração.
+
+Quase o fizeste parar
+
+Com tua provação.
+
+<br>
+
+
+Subir doze andares,
+
+Por falta de energia,
+
+Limitou meus ares,
+
+À minha revelia.
+
+<br>
+
+
+Inicial, ritmo de marcha,
+
+Logo, samba-canção,
+
+Em frevo, quase me racha.
+
+<br>
+
+
+Décimo segundo, ar livre!
+
+Consegui! Quem me abraça?
+
+Meu ritmo!? Marcha fúnebre.
+
+<br>
+
+
+
+## 75. Todos Dormem
+
+
+Ninguém acorda.
+
+Somente eu de pé.
+
+Dormem como uma porta.
+
+Eu já vou tomar café.
+
+<br>
+
+
+Voltarei dentro em pouco.
+
+Se isso não importa.
+
+Ficarei muito rouco,
+
+Ao gritar, acorda!
+
+<br>
+
+
+Acorda! Acorda! Acorda!
+
+O tempo está passando!
+
+Estão todos moucos.
+
+<br>
+
+
+Eles lá sonhando.
+
+Eu aqui, imaginando...
+
+Sozinho, por dormir pouco.
+
+<br>
+
+
