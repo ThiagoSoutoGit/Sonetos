@@ -38,6 +38,9 @@ Mais uma vez se confraterniza,
 
 Com o objetivo de uma vida em alegria.
 
+<br>
+
+
 ## 2. A Namoradinha
 
 Não via a hora chegar.
@@ -77,6 +80,9 @@ Em meu coração, amor.
 
 Mas o tempo... sumiu.
 
+<br>
+
+
 ## 3. Abiu Tio Tamá
 
 A notícia ecôo no corredor,
@@ -115,6 +121,9 @@ Como herói começo a quebrar,
 Como um dragão, uma janela.
 
 Grita a princesa "Abiu tio Tamar
+
+<br>
+
 
 ## 4. Acredito em Papai Noel
 
@@ -157,6 +166,9 @@ Presente de Papai Noel.
 Ainda hoje o vejo, ainda o sinto,
 
 Nos olhinhos de cada pequenino.
+
+<br>
+
 
 ## 5. Águia
 
@@ -202,6 +214,9 @@ Sem saber dos seus erros… acertos,
 
 Dor, infinito, dúvidas, amplidão.
 
+<br>
+
+
 ## 6. Alta Temperatura
 
 Vinte graus, Rio, temperatura,
@@ -245,6 +260,9 @@ Quando chega ao topo
 
 Do amor que engrandece.
 
+<br>
+
+
 ## 7. Amigos são como o vento
 
 Os ventos vão e voltam.
@@ -284,6 +302,9 @@ Aliviaste minha dor.
 És como o vento.
 
 Vai, volta… fica o amor.
+
+<br>
+
 
 ## 8. Amigos
 
@@ -331,6 +352,9 @@ Com abnegação, a vida irmanar
 
 E assim, unidos como um regimento.
 
+<br>
+
+
 
 ## 9. Ao Meu Amor
 
@@ -376,6 +400,9 @@ Nunca, jamais deixarei de te amar.
 
 Sinto por te um amor de verdade.
 
+<br>
+
+
 ## 10. Aperecida Mangerona
 
 
@@ -416,6 +443,9 @@ Com um jeito que apaixona,
 O marido, os filhos, os amigos.
 
 Ela é Aparecida Mangerona.
+
+<br>
+
 
 ## 11. Arrependimento
 
@@ -461,6 +491,9 @@ Deixando o arrependimento,
 
 Sem o sim por ter dito, não.
 
+<br>
+
+
 ## 12. Bodas de Ouro
 
 Uma vida que renasce em pleno amor 
@@ -504,6 +537,9 @@ Pegadas de ouro soube semear
 
 Colheu amor e assim é amado.
 
+<br>
+
+
 ## 13. Dudinha
 
 Foi sua vida, dádiva de Deus, 
@@ -544,6 +580,9 @@ Em prol da vida e muito louvor.
 
 Ambas, sempre emanando amor. 
 
+<br>
+
+
 ## 14. Uma Manga Caiu
 
 Vivi sim, Belém, por um instante. 
@@ -583,6 +622,9 @@ Muito doce, o meu parecer.
 
 Emoção em Belém do Pará.
 
+<br>
+
+
 ## 15. Uma Vanda para uma Vanda
 
 Uma Vanda para uma Vanda.
@@ -592,6 +634,9 @@ Para Vanda , é só o que almejo.
 Para uma Vanda amada,
 
 Uma Vanda e um beijo.
+
+<br>
+
 
 ## 16. Boa Noite Aparecida!
 
@@ -633,6 +678,9 @@ De tamanho vigor,
 Com o tamanho do teu amor.
 
 
+<br>
+
+
 ## 17. Boa Noite!
 
 
@@ -672,6 +720,9 @@ Amigos, daqueles para a eternidade.
 Sinceros, do bem querer,
 
 Do amor, da fraternidade.
+
+<br>
+
 
 
 ## 18. Com o Vovô
@@ -717,6 +768,9 @@ Quero ver me aguentar,
 
 Cheguei primeiro, meu vô!
 
+<br>
+
+
 
 ## 19. Confinamento
 
@@ -759,6 +813,9 @@ A existência única do amor,
 Suporta-me em seus braços,
 
 Cativa-me com vigorosos laços.
+
+
+<br>
 
 
 ## 20. Destino
@@ -804,6 +861,9 @@ Estar ou não no universo certo?
 Ocaso? Sol, bem mais perto.
 
 
+<br>
+
+
 
 ## 21. Desvaneios
 
@@ -847,6 +907,9 @@ Feliz e com muita graça
 
 Um coração que abraça.
 
+<br>
+
+
 
 ## 22. Dia da Bandeira
 
@@ -889,6 +952,9 @@ E cada brasileiro rir e chorar
 Com orgulho de um bravo
 
 E mais uma vez A adorar?
+
+
+<br>
 
 
 ## 23. É Natal
@@ -935,6 +1001,9 @@ Oremos a Jesus com carinho.
 Mostremos que nós O amamos.
 
 
+<br>
+
+
 
 ## 24. Eternidade
 
@@ -977,6 +1046,9 @@ A ele e nele, sem pensar me consumiria.
 Igual náufrago em uma tempestade, 
 
 Feliz pelo sabor de sentir ser eterno.
+
+
+<br>
 
 
 
@@ -1023,6 +1095,9 @@ A vida, de felicidade, repleta
 De êxitos, paz e muito amor.
 
 
+<br>
+
+
 ## 26. Face
 
 Se me aceitas,
@@ -1064,6 +1139,9 @@ A habitar meu coração,
 Que porta de entrada tem,
 
 Mas porta de saída, não.
+
+
+<br>
 
 
 
@@ -1111,6 +1189,9 @@ Cada uma se multiplica.
 À família! Pessoas amadas.
 
 
+<br>
+
+
 ## 28. Feliz Ano Novo
 
 Feliz Ano Novo! Feliz Ano Novo!
@@ -1152,6 +1233,9 @@ Aliviamos a dor com um gesto,
 Com um sorriso e com muito amor,
 
 Feliz Ano Novo! Feliz Ano Novo!
+
+<br>
+
 
 
 ## 29. Flor-de-lis
@@ -1196,6 +1280,9 @@ Mais, mais, sempre bis!
 
 Louvado seja a FLOR-DE-LIS.
 
+<br>
+
+
 
 ## 30. Homenagem às mulheres
 
@@ -1238,6 +1325,9 @@ Esperam de nós, confiantes,
 Sempre lindas e faceiras,
 
 Palavras sinceras, amorosas, marcantes.
+
+
+<br>
 
 
 
@@ -1284,6 +1374,9 @@ Mostra as imagens de nossa vida,
 Os momentos que não mais voltarão.
 
 
+<br>
+
+
 ## 32. Lorena Brandão
 
 Mais um dia para comemoração.
@@ -1325,6 +1418,9 @@ Junto a ti, sei que nele estarão,
 Com aplausos e muito amor,
 
 Os que habitam em teu coração.
+
+
+<br>
 
 
 ## 33. Mangueiras de Belém
@@ -1369,6 +1465,9 @@ Seculares em seu louvor,
 
 Gigantes em vida e em amor.
 
+<br>
+
+
 ## 34. Menino ou menina
 
 Será uma flor de menina
@@ -1410,6 +1509,9 @@ Aconchegarei com a força do amor,
 Menino ou menina, não importa,
 
 Oh, meu príncipe! Oh, minha flor!
+
+
+<br>
 
 
 
@@ -1456,6 +1558,9 @@ Sinceros, do bem querer,
 Do amor, da fraternidade.
 
 
+<br>
+
+
 
 ## 36. Meu Coração Sangra
 
@@ -1498,6 +1603,9 @@ Vem! envolve-me, abraço amado,
 Aquieta-me com o teu amor,
 
 Faz-me sentir teu beijo encantado.
+
+
+<br>
 
 
 
@@ -1544,6 +1652,9 @@ Que palavra rima com mãe?
 Só mesmo a própria mãe.
 
 
+<br>
+
+
 
 ## 38. Minha querida Juíza
 
@@ -1586,6 +1697,9 @@ O grande sonho se realiza.
 Sem mais nenhum dos desafios.
 
 Eu te amo, minha querida Juíza.
+
+
+<br>
 
 
 
@@ -1632,6 +1746,9 @@ Esta eterna festa sem fim,
 Querida Vanda, meu amor de amar.
 
 
+<br>
+
+
 
 ## 40. Mulé do Carmim
 
@@ -1674,6 +1791,9 @@ Pra mim já é uma flô,
 No mei do meu camim
 
 Vou lá, ora se não vô!
+
+
+<br>
 
 
 
@@ -1750,6 +1870,8 @@ Canções cancioneiro,
 Viola… violeiro encanta.
 
 
+<br>
+
 
 ## 42. NESO
 
@@ -1793,6 +1915,8 @@ Sempre te teremos no coração.
 
 Com orgulho, com Brasilidade.
 
+
+<br>
 
 
 ## 43. Nossa morte
@@ -1838,6 +1962,8 @@ Em nossa fibra a energia,
 Ser, vivível, eis a verdade.
 
 
+<br>
+
 
 ## 44. O Amor
 
@@ -1880,6 +2006,8 @@ Sempre fica uma cicatriz.
 Ah, este amor que se bem diz!
 
 Quem és que não me deixas feliz?
+
+<br>
 
 ## 45. O Coqueiro 
 
